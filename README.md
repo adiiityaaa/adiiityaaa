@@ -5,7 +5,7 @@ I describe myself as a techie with interest in automobiles, automation and compu
 You can reach out to me on:
 - [Instagram](https://www.instagram.com/adiiiityaaaa__/)
 - [Twitter](https://twitter.com/adiiityaaa_)
-- [DropAMail](https://dropamail.adiiityaaa.repl.co)
+- [Drop Me a Mail](https://dropamail.adiiityaaa.repl.co)
   
 <!---
 adiiityaaa/adiiityaaa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
